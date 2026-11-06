@@ -1,0 +1,2 @@
+# Nuvina-FN-OG
+NIGGA THIS IS NOT OPENSOURCE AND YOU CANNOT USE THIS FROM HERE, BUY ON https://discord.gg/nuvinaUD !!!
